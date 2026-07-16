@@ -1,8 +1,7 @@
-<p align=“center”
-  <img src=“https://readme-typing.demolab.com?
-font=Syne+Mono&size=28&pause=20&colour=ee1a6a&center=true&vCenter=true&repeat=true&width=700&lines=TEAMWORK+FOR+THE+WIN;" />
-</p>
- 
+
+ <p align="center">
+<img src="https://readme-typing-svg.demolab.com?
+font-Syne+Mono&size=28&pause-20&color-229f89&center=true&vCenter-true&repeat=true&width=700&lines-MOM+IM+ON+TV!;1 +TEAMWORK+FOR+WIN+YEAHYOU +GO FIRST!; SURPRISEE!;Ugh+Hope+That+Made You+feel better..; Hold+my+salt.; You+have+broken+the+law!; Timesf or+some+real+actionl; THE BEST+BRAWLERS+MAKE+THE+BEST+TEAMS!; Wheres+The love?...; Sounds+Like+Nipple..!" /></p>
   
   
   thehey buddy,....... 
