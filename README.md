@@ -1,5 +1,7 @@
-## Hi there 👋
-
+hey buddy,....... 
+hi i am chester n2 defender trust
+i ship drachester and i make jokes about stuff sometimes please tell me to stop if you're uncomf with it.
+i am workimg on this page as i am focusing on my studies atp
 <!--
 **TheDrachesterDrawer/TheDrachesterDrawer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
