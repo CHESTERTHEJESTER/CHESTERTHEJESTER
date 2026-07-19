@@ -23,7 +23,6 @@ bye<img width="100" height="80" alt="Unknown" src="https://github.com/user-attac
 <img width="560" height="120" alt="Unknown 8" src="https://github.com/user-attachments/assets/8c0cf343-fedb-46d7-b8e9-8a00c043a0bf" />
 "im a mandy fictkin" "mandy this mandythat" "youre an mandy simp right?" "mandys dog""wanna be my chester? heh." kindly dni 💝
 
-<img width="450" height="250" alt="Draco Brawl stars" src="https://github.com/user-attachments/assets/80be1d3e-e057-4a56-96c2-0eb8eaf803e0" />
 
 
 
